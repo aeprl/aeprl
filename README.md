@@ -1,6 +1,6 @@
 ### hi 
 
-i have committed 8 crimes in the past year <br> <br>
+i have committed 0 code in the past year <br> <br>
 ![](https://media.discordapp.net/attachments/552892936157790209/763903664955064340/EjUm3GqWoAAbgaZ.png?width=414&height=423)
 
 <!--
